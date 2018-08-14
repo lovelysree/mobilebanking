@@ -6,5 +6,3 @@ fdzlkfj
 
 hfsdajflsk
 kfsadlkfskl
-fknasdlkns
-fsdbadfn
